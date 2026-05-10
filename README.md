@@ -1,6 +1,6 @@
 # Christopher Moore
 [LinkedIn](https://www.linkedin.com/in/christopher-m-4a9b097a/) | 
-[Google Scholar](https://scholar.google.com/citations?user=5TsVi40AAAAJ&hl=en) 
+[Google Scholar](https://scholar.google.com/citations?user=zZJSV0cAAAAJ&hl=en) 
 | [Research Gate](https://www.researchgate.net/profile/Christopher_Moore26)
 
 ## Profile
